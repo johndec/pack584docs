@@ -59,3 +59,27 @@ Pack 584 follows a 'Scout year' of September to June, and upon nearing the end o
 into the next rank. During the summer, Den meetings are usually suspended.  The Pack will meet at fun outings such as a
 Pack Campout, Pack Picnic, Cub Scout Day Camp, 4th of July Parade, Cub Scout Resident Camp, Day hikes and more
 throughout the summer. 
+
+## Den Meetings
+
+Lots of Cub Scouting happens in the den. Please remember that your child's Den Leader is a volunteer putting
+forth his or her time and effort to help your boy 'do their best' to earn their badges, participate in the fun,
+and gain all the positive values that the Cub Scout program offers. Please assist them in the following ways.
+
+* _Please have your son arrive to den meetings on time._ Your den leaders have lots of activities planned
+and it is important to have the whole group together to begin the evening's fun and projects.
+
+* _Please pick up your child from den meetings on time._ Your den leader has places to go and kids that they
+have to put to bed, too. Better yet, ask your den leader if they could use an extra pair of hands that night
+and stay. Not only will your help be appreciated, but also you can see what your son is working on.  Note: 
+Lions and Tigers must have an Adult Partner with them at all meetings, trips, etc. Enjoy the time together!
+
+* _Please pay your den dues promptly._ Your den leader or other parents will be purchasing various items for
+craft projects, supplies, snacks, etc., and it sure helps to have the money 'on hand'. Also, please make sure
+your child has their handbook, and anything else they need for the meeting before leaving the house.
+
+* _Be an active parent._ Everybody has some special abilities and 'know how' that can be of great help in
+matters relating to Cub Scouts. Please make sure you have completed the Parent Talent Survey Sheet and return
+it to your leader. In addition to the Scouts learning new skills from you, I promise that you will have a good
+time helping them. 
+
