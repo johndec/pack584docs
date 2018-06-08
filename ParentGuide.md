@@ -108,3 +108,47 @@ with other Pack meeting activities, it is imperative to have them there on time.
 
 * _The Pack meeting is definitely the place to wear the full Scout uniform._  Class A - Shirts tucked in - looking sharp!
 Most of all, we hope to make Pack meetings entertaining, enriching, and FUN!!!  
+
+## Pack 584 and BSA Dues
+
+Throughout the Scout year, your Den leader or Pack Treasurer will be collecting money for various Pack functions
+and activities.  These will be addressed in flyers or newsletters that will be handed out at Pack Meetings or Den
+meetings. The following is a reminder of what two fees are required for your child's involvement in the Pack.
+
+The total annual fee is currently $90.00 (subject to change, year-to-year).  Please make checks payable to Cub Pack 584.
+
+All direct-contact, adult leader volunteers (Den Leaders, Cubmaster, etc) will have their annual fee waived, and their
+BSA Dues will be covered by the Pack.  The Pack will then send the required BSA Dues for you along with your registration.
+This fee covers the following: 
+
+* BSA Dues, $33.00 - This annual fee is for every Scout and Adult leader.  The adult leader's fee includes a subscription to Scouting magazine. This is pro-rated for new members based on time of registration.
+
+* Pack 584 Dues, $57.00 - This part of the dues go towards the cost of the many awards that will be presented to your scout throughout the year as. This also helps offset some of the costs of other Pack events throughout the year including the Pinewood Derby. The deadline for this is the October Pack meeting. 
+
+We do not want to exclude anyone based on their ability to pay these fees.  Please talk with the Cubmaster about our
+low income assistance program if this applies to your family. 
+
+The Pack maintains its own bank account with records being kept by our Pack Treasurer.
+
+### Prorated Dues when joining Pack 584
+
+If you join Pack 584, you might be joining in the middle of a program year (very common if joining in Fall).  We offer
+prorated dues so that you don't spend an entire year's dues for a partial program year.  These prorated dues vary
+depending on when you join in the year:
+
+* September:  $130.  This covers you until December of the following year.  (e.g. September 2018 covers you until December 2019.)
+* October: $120.  Same as above.
+* November: $110.  Same as above.
+* December: $100.  Same as above.
+* January: $90.  This is our normal rate and will cover you until December of the same year.  (e.g. January 2019 covers you until December 2019.)
+* February: $80.  Same as above.
+* March: $70.  Same as above.
+* April: $60.  Same as above.
+* May: $56.  Same as above.
+* June: $52.  Same as above.
+* July: $48.  Same as above.
+* August: $44.  Same as above.
+
+When you join Pack 584, you'll get a free "Class B" T-Shirt!
+
+
