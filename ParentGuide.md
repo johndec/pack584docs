@@ -151,4 +151,9 @@ depending on when you join in the year:
 
 When you join Pack 584, you'll get a free "Class B" T-Shirt!
 
+## Fundraisers
+
+Throughout the year there will be various fundraisers. Some of these might go to benefit the Pack for a trip, outing,
+or needed supplies, and some to benefit the Scout, Pack, and Chief Seattle Council. As Cub Scouts, we will always try
+and make sure to emphasize the **fun** in **fun**draising.  Thank you.
 
