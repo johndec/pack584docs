@@ -83,3 +83,28 @@ matters relating to Cub Scouts. Please make sure you have completed the Parent T
 it to your leader. In addition to the Scouts learning new skills from you, I promise that you will have a good
 time helping them. 
 
+## Pack Meetings
+
+Whereas at weekly Den meetings the Scouts might do activities towards earning rank badges and awards, the
+monthly Pack meeting is where these awards are presented. It is an important part of the program, as it allows
+the Scouts to receive their recognition in front of the group as a whole, inspires the younger scouts to strive
+towards achieving future ranks, and brings everybody together for the big night! 
+ 
+At Pack meetings, the Cubmaster will 'do his/her best' to make sure that each Den has a chance to display that
+special craft they made, song they learned, skit they've rehearsed, or interesting place they visited. In addition,
+there might be a drawing, advancement ceremony, or other themed event planned for the evening.
+
+Please observe the followings guidelines in regards to Pack meetings.  
+
+* _Please accompany your son to his Pack meeting._ Pack meetings are a family event - brothers, sisters,
+grandparents, but most of all, YOU! We require you there not only to help keep order at the meeting (things can get
+a bit rowdy), but also because in Scouting some awards are presented to the parent who then presents it to the
+Scout. Cub Scouts is a family program.  
+
+* _Please arrive to Pack meetings on time._  Plan on arriving at least ten minutes early to receive a ticket for a
+drawing that are sometimes held, confer with your child's Den leader about upcoming things, chat with friends, etc.,
+as the meeting needs to begin on time. If your Scout is helping out as a member of a flag ceremony, or assisting
+with other Pack meeting activities, it is imperative to have them there on time. Thank you.  
+
+* _The Pack meeting is definitely the place to wear the full Scout uniform._  Class A - Shirts tucked in - looking sharp!
+Most of all, we hope to make Pack meetings entertaining, enriching, and FUN!!!  
