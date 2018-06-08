@@ -60,6 +60,24 @@ into the next rank. During the summer, Den meetings are usually suspended.  The 
 Pack Campout, Pack Picnic, Cub Scout Day Camp, 4th of July Parade, Cub Scout Resident Camp, Day hikes and more
 throughout the summer. 
 
+## Cub Scouting and You
+
+When your Scout earns their Bobcat badge, they learn the Law of the Pack. One of these laws states "The Cub Scout Helps
+the Pack Go". Throughout the year there are banquets, fundraisers, Scout shows, parades, derbies, camping trips,
+and many other activities and functions. Ambitious as they are, a Cub Scout still needs your help in implementing
+the program and thereby giving us the chance to keep our promise in the part of the Law that states "The Pack Helps
+the Cub Scout Grow".
+
+Remember, the Pack is all of us working together... leaders, parents, and Scouts.  Unlike other programs your child
+might enroll in, Cub Scouting involves the whole family, no matter what size or parental make-up exists in the home.
+In Tigers, you are your Scout's Adult Partner. In Wolves and Bears, you are Akela, the wise leader and the final
+judge of your Scout's efforts. At the Webelos rank, you are the Activity Badge counselors that could help influence
+a Scout's career direction.
+
+Throughout the year, you will be asked to assist on different committees, and at different events. Please volunteer
+freely, and give of yourself when called upon to help.  You will find it a rewarding experience, and one in which you
+and your child will remember that you did together. Thank you. 
+
 ## Den Meetings
 
 Lots of Cub Scouting happens in the den. Please remember that your child's Den Leader is a volunteer putting
