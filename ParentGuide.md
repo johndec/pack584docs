@@ -96,7 +96,7 @@ there might be a drawing, advancement ceremony, or other themed event planned fo
 
 Please observe the followings guidelines in regards to Pack meetings.  
 
-* _Please accompany your son to his Pack meeting._ Pack meetings are a family event - brothers, sisters,
+* _Please accompany your Scout to his Pack meeting._ Pack meetings are a family event - brothers, sisters,
 grandparents, but most of all, YOU! We require you there not only to help keep order at the meeting (things can get
 a bit rowdy), but also because in Scouting some awards are presented to the parent who then presents it to the
 Scout. Cub Scouts is a family program.  
