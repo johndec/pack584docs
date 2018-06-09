@@ -84,12 +84,12 @@ Lots of Cub Scouting happens in the den. Please remember that your child's Den L
 forth his or her time and effort to help your boy 'do their best' to earn their badges, participate in the fun,
 and gain all the positive values that the Cub Scout program offers. Please assist them in the following ways.
 
-* _Please have your son arrive to den meetings on time._ Your den leaders have lots of activities planned
+* _Please have your Scout arrive to den meetings on time._ Your den leaders have lots of activities planned
 and it is important to have the whole group together to begin the evening's fun and projects.
 
 * _Please pick up your child from den meetings on time._ Your den leader has places to go and kids that they
 have to put to bed, too. Better yet, ask your den leader if they could use an extra pair of hands that night
-and stay. Not only will your help be appreciated, but also you can see what your son is working on.  Note: 
+and stay. Not only will your help be appreciated, but also you can see what your child is working on.  Note: 
 Lions and Tigers must have an Adult Partner with them at all meetings, trips, etc. Enjoy the time together!
 
 * _Please pay your den dues promptly._ Your den leader or other parents will be purchasing various items for
