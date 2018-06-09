@@ -175,3 +175,47 @@ Throughout the year there will be various fundraisers. Some of these might go to
 or needed supplies, and some to benefit the Scout, Pack, and Chief Seattle Council. As Cub Scouts, we will always try
 and make sure to emphasize the **fun** in **fun**draising.  Thank you.
 
+## Uniforms, Patches, and Accessories
+
+Scouts in uniform are more conscious of their role in Cub Scouting, and feel a sense of pride and belonging when
+wearing one. A uniform provides a proper place for the display of badges earned and a way for him or her to 'show
+the world' that he or she has been rewarded for their achievements.
+
+Additionally, Scouts in uniform create a strong, positive, visible image in the community that helps to strengthen
+the important ties between the public and the Scouting organization.
+
+The main article of the uniform is the shirt, as it displays the rank of the Scout, and identifies him as belonging
+to a certain Den, Pack and Council. When purchasing a new uniform, remember that your Scout is growing; you might
+consider getting an extra size or two larger, so he or she can wear it for an extra year or two.
+
+Your Scout will also need a rank-specific hat, as well as a rank-specific neckerchief and neckerchief slide.  The
+slide can be a rank-specific one purchased at the Scout Store, or can be any homemade slide.  You can also
+purchase the official Cub Scout Pants or Shorts, but this is not required.
+
+A uniform is something that a Scout can help pay for themselves by assigning them various chores around the house,
+or helping out with other home projects. Also, keep in mind that uniforms, Scout accessories, camping supplies,
+and other 'Scout stuff' makes excellent birthday and holiday presents for your child or the Scouter in your family. 
+
+### "Class A" and "Class B" Uniforms
+
+We refer to the dress uniform shirt, neckerchief, and hat as the "Class A" uniform.  This uniform is normally worn
+at Den Meetings, Pack Meetings, and outings.  It is always worn at Flag ceremonies.
+
+We also use a "Class B" uniform, which is a fancy way of saying "any Cub Scout T-Shirt".  Our Pack offers our own
+branded Pack 584 T-Shirt for $10.  See our Pack Treasurer or Cubmaster for details.
+
+### Patches
+
+In addition to the purchasing of a uniform, there will be many patches that need to be sewn or affixed to your child's
+shirt. Please pay close attention where they are placed on the uniform.  (Please refer to uniform insignia placement section).
+
+It is important that when your child receives a badge that is to be a part of their uniform, you affix it to their shirt
+as soon as possible. They earned it, and they deserve to have it displayed. Thank you.
+
+### Where to Buy
+
+Uniforms, patches and accessories are available at the Seattle Scout Shop located at 3120 Rainier Ave South.
+Their phone number is 206-721-5945.  In addition to uniforms, they carry everything you see in the Scout Catalog,
+and then some. Enjoy the time spent there! Your new Scout will love it!
+
+
