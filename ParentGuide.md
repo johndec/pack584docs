@@ -199,10 +199,11 @@ and other 'Scout stuff' makes excellent birthday and holiday presents for your c
 ### "Class A" and "Class B" Uniforms
 
 We refer to the dress uniform shirt, neckerchief, and hat as the "Class A" uniform.  This uniform is normally worn
-at Den Meetings, Pack Meetings, and outings.  It is always worn at Flag ceremonies.
+at Den Meetings, Pack Meetings, and outings.  It is always worn at Flag ceremonies, even at camp.
 
-We also use a "Class B" uniform, which is a fancy way of saying "any Cub Scout T-Shirt".  Our Pack offers our own
-branded Pack 584 T-Shirt for $10.  See our Pack Treasurer or Cubmaster for details.
+We also use a "Class B" uniform, which is a fancy way of saying "any Cub Scout T-Shirt".  This shirt is typically
+worn when the Scout will likely get dirty (e.g. when camping, at outdoor events, community service events, etc.)
+Our Pack offers our own branded Pack 584 T-Shirt for $10.  See our Pack Treasurer or Cubmaster for details.
 
 ### Patches
 
